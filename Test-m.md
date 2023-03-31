@@ -1,0 +1,1 @@
+Kivaa ku on perjantai
